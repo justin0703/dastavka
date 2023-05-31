@@ -1,0 +1,2 @@
+# dastavka
+taomlar bn ishlash
