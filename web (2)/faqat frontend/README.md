@@ -1,0 +1,2 @@
+## Qanday o'rnatiladi ?
+
